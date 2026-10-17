@@ -1,4 +1,4 @@
-![](https://drive.google.com/thumbnail?sz=w1024&id=1zPeBZma9A_ekOf3xrr59b0U6YQm9WhyN)	Barabas, Baldvin	student	EHL- Pulau Tioman 2026
+![](https://drive.google.com/thumbnail?sz=w1024&id=1zPeBZma9A_ekOf3xrr59b0U6YQm9WhyN)	Barabas, Baldvin
 ![](https://drive.google.com/thumbnail?sz=w1024&id=1mfcVTJVVgNBKOcs93ZBy_79M89odmJvF)	Bicart-see, Eline	student	EHL- Pulau Tioman 2026
 ![](https://drive.google.com/thumbnail?sz=w1024&id=1u4e36pvxEcF6NVdTDhw54tdwI3erl5Og)	Daluz, Liu	student	EHL- Pulau Tioman 2026
 ![](https://drive.google.com/thumbnail?sz=w1024&id=19Y9P8NAWOVuM5KZRc6gnjySWwNl79EfU)	Fiorentini, Giogia	student	EHL- Pulau Tioman 2026
